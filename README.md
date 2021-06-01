@@ -1,0 +1,1 @@
+# Strictclass.PSD
